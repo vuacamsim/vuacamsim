@@ -1,16 +1,15 @@
-## Hi there 👋
+## Vua Cầm Sim Số Đẹp
 
-<!--
-**vuacamsim/vuacamsim** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Sim đẹp không chỉ để khoe, còn để tiền về túi ngay tại Vua Cầm Sim. Định giá nhanh – duyệt trong phút mốt – lãi suất nhẹ nhàng – uy tín số 1 Việt Nam!
 
-Here are some ideas to get you started:
+- Địa chỉ: Số 3/98 Thái Hà, phường Đống Đa, thành phố Hà Nội, Hà Nội, Việt Nam
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- SĐT: 0975626262
+
+- Email: khosimdaigia@gmail.com
+
+- Website: https://vuacamsim.com/
+
+https://x.com/vuacamsim
+
+https://www.youtube.com/channel/UCrtIR8vcjOP9ABobBhz0EZA
